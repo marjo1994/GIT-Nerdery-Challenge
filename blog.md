@@ -16,4 +16,4 @@ See how leading companies partnered with Ravn to scale faster, solve complex cha
 
 ## Working as a good team player
 
-![Working as a good team player](./images/teamwork.jpeg)             
+![Working as a good team player](./images/team.jpeg)             
