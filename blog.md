@@ -13,3 +13,7 @@ Our seasoned, AI-native cross-functional software teams act as a seamless extens
 ## Case Studies
 
 See how leading companies partnered with Ravn to scale faster, solve complex challenges, and ship smarter. These case studies highlight the impact of embedded, engineer led collaboration built on trust, expertise, and results.
+
+## Working as a good team player
+
+![Working as a good team player](https://www.hfi.com/wp-content/uploads/2018/12/AdobeStock_176912892.jpeg)             
